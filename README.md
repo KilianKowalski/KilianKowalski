@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Kilian(Hugos Version🎀)
+- 👀 I’m watching LetshugoTV and coding 
+- 🌱 I’m currently learning Java, HTML, and other stuff
+- 📫 How to reach me: Instagram: @derkiliahlt
+- 😄 Pronouns: he/him
