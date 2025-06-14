@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kilian(Hugos Version🎀)
 - 👀 I’m watching LetshugoTV and coding 
 - 🌱 I’m currently learning Java, HTML, and other stuff
-- 📫 How to reach me: Instagram: @derkiliahlt
+- 📫 How to reach me: Mail: kilian@megacraft-mc.de  |  Instagram: @derkiliahlt
 - 😄 Pronouns: he/him
