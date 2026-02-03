@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kilian(Hugos Version🎀)
 - 👀 I’m from Germany and left
 - 🌱 I’m currently learning Java, HTML, and other stuff
-- 📫 How to reach me: Mail: kilian@mega-mc.de  |  Instagram: @derkiliahlt
+- 📫 How to reach me: Mail: kilian.reg@icloud.com  |  Instagram: @derkiliahlt
 - 😄 Pronouns: he/him
